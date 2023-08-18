@@ -1,2 +1,2 @@
 # VeleDrzost
-Ríša Smrdí 🫣
+Ríša Smrdí 🫣 měl by se jít umýt
